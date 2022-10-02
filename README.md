@@ -1,2 +1,2 @@
 # bebrenko-1000-7
-project lalalalalalala 
+Ідіть всі в сраку
